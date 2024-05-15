@@ -12,3 +12,4 @@ sou um preto gostoso
 namoro a mulher mais incrivel do mundo tira o olho
 sou jogador de free fire
 o melhor em jogar de bola
+sou o cara mais legal q vc vai conhecer
